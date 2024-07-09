@@ -16,6 +16,8 @@
     
 <p align="center"> im always open for cuddles ^_^
 
+<p align="center"> I am an NPC. I'd never int first. so pls don't be shy to int
+
 
 
 <h1 align="center"></[](h)>
