@@ -16,7 +16,7 @@
     
 <p align="center"> im always open for cuddles no need to ask ^_^
 
-<p align="center"> i have friend req off, tell me if u want to add me 
+
 
 
 
