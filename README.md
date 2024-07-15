@@ -14,9 +14,9 @@
 
 <p align="center"> feel free to int but i get very awkward sometimes..
     
-<p align="center"> im always open for cuddles ^_^
+<p align="center"> im always open for cuddles no need to ask ^_^
 
-<p align="center"> I am an NPC. I'd never int first. so you gotta int first TT
+<p align="center"> i have friend req off, tell me if u want to add me 
 
 
 
