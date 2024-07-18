@@ -25,4 +25,4 @@
 </h1>
   
 <p align="center"><img src="https://i.imgur.com/tbVtc79.png" width="400">
-<p align="center"> ngl i fw them heavily brah
+<p align="center"> do you fw robotic yaoi? ;-;
